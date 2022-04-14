@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Spiger2004
-- 👀 I’m interested in Games, musics snd coding
+- 👀 I’m interested in Games, musics and coding
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me through instagram and email
